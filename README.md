@@ -1,2 +1,2 @@
 # Ender
-End school censorship  
+The ender projects ends school censorship  
